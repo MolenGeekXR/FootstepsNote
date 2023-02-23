@@ -17,3 +17,5 @@ Step 2: Do the first stem, wifi and update
 
 Launch break while all headset reload and update are installing.
 So many headset make the internet very slow.
+
+- 13h45 to  15h41 Same as the morning with 24 other headset. 3-4 people that know the drill.  
