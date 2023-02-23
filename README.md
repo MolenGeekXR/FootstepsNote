@@ -12,3 +12,5 @@ See video
 
 Step 2: Do the first stem, wifi and update
 
+- 10h38  to 11h43 : 15  casques à 4 personnes first step update  
+- 5 minutes 20 = set one casque before waiting for update to start.
